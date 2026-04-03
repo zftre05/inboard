@@ -6,6 +6,7 @@
 
 直到遇见 Inboard，才算找到了一个真正合适的解决方案。
 
+<img width="512" height="512" alt="image" src="https://github.com/user-attachments/assets/e825ee78-5872-406c-aa55-60efdab4fc8f" />
 
 ---
 
